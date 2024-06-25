@@ -1,3 +1,6 @@
-# Howdy friends, I'm Everett!
-
-## Where are my repos? They are on my website: [git.neveretth.xyz](https://git.neveretth.xyz)
+Land er heilagt,
+er ek liggja sé
+ásum ok álfum nær
+en í Þrúðheimi
+skal Þór vera,
+unz of rjúfask regin.
